@@ -4,6 +4,8 @@
 
 ****✮ ⋆ ˚｡𖦹 ⋆°°✩ -- Before you INT -- ✮ ⋆ ˚｡𖦹 ⋆°°✩****
 
+****₊˚ʚ ᗢ₊˚✧ ﾟ.₊˚ʚ ᗢ₊˚✧ ﾟ.****
+
 ***|𐙚|*** I'm not the best at conversation, I will *not* interact with you first. I'm also very shy and overthink my responses, so if I go silent it's because I don't know how to respond or I'm overthinking my response. ***|𐙚|***
 
 
@@ -12,7 +14,9 @@
 
 ![image](https://github.com/user-attachments/assets/04f8bb57-e7c1-4f18-9990-126821c33f5e)
 
-****DNI****
+****﷽ -- DNI -- ﷽****
+
+****₊˚ʚ ᗢ₊˚✧ ﾟ.₊˚ʚ ᗢ₊˚✧ ﾟ.****
 
 ***|𐙚|*** PLEASE DNI; Proshippers, Comshippers, Darkshippers, Transphobics, Homophobics, Sexists, Racists. ***|𐙚|***
 
