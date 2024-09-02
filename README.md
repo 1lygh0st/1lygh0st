@@ -6,7 +6,7 @@
 
   ****₊˚ʚ ᗢ₊˚✧ ﾟ.₊˚ʚ ᗢ₊˚✧ ﾟ.****
 
-***|𐙚|*** I'm not the best at conversation, I will *not* interact with you first. I'm also very shy and overthink my responses, so if I go silent it's because I don't know how to respond or I'm overthinking my response. ***|𐙚|***
+    ***|𐙚|*** I'm not the best at conversation, I will *not* interact with you first. I'm also very shy and overthink my responses, so if I go silent it's because I don't know how to respond or I'm overthinking my response. ***|𐙚|***
 
 
 *****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚******
